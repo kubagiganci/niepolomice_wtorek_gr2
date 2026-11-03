@@ -1,0 +1,1 @@
+# niepolomice_wtorek_gr2
